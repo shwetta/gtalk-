@@ -1,2 +1,2 @@
 # gtalk-
-hello jinny
+hello jinny, how r u?
